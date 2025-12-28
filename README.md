@@ -1,3 +1,2 @@
 # Meurepo
-Meu repo teste pra ver se eu to sabendo mesmo das parada
-Resposta: EU TO SABENDO DAS PARADAKKKKKKKK
+Link do organograma: https://mm.tt/map/3904154026?t=UjW8WG6bEE
